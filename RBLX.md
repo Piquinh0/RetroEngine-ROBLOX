@@ -1,4 +1,3 @@
-# .RBLX Text
 <roblox!‰ÿ
 
   e   ñ           SSTR          P     
